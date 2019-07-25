@@ -1,0 +1,2 @@
+https://www.washingtonpost.com/opinions/last-centurys-immigration-debate-makes-todays-seem-enlightened/2019/06/28/ac96ffec-9900-11e9-916d-9c61607d8190_story.html
+The Washington Post: Last century’s immigration debate makes today’s seem enlightened
